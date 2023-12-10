@@ -1,5 +1,5 @@
 - 👋 Hi, I’m **Sakshi Barde**
-- Comuter Engineering student at Pillai College Of Engineering, New Panvel 
+- Computer Engineering student at Pillai College Of Engineering, New Panvel 
 - 📫 How to reach me: 31sakshibarde@gmail.com
 - My LinkedIn: www.linkedin.com/in/sakshi-barde-654a07283
 
